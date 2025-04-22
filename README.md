@@ -26,8 +26,9 @@ The Descendant of Yakub and Napoleon — **royalty runs in this coin.**
 
 ## 📢 Join the Horde
 - [Telegram](https://t.me/+waXlqJ2L3sAwZDlk)  
-- [Twitter](https://twitter.com/)  
-- 📩 Email: [info@blackkhan.io](mailto:info@blackkhan.io)
+- [Instagram](https://www.instagram.com/blackkhancoin)
+- [TikTok](https://www.tiktok.com/@theblackkhancoin)
+- 📩 Email: [theblackkhancoin@gmail.com](theblackkhancoin@gmail.com)
 
 ---
 
